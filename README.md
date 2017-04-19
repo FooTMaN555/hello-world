@@ -5,4 +5,4 @@ Somehow i want to learn alot of things and i wont get away. Wish i could find a 
 
 Wish me some luck guys , but more likely u dont even got this message
 
-Anyway, here we go!
+Anyway, here we go!!
